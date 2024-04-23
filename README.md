@@ -1,1 +1,1 @@
-[|] The Fraudulence Custom Compaign Github Repository [|]
+[|] The Fraudulence Custom Campaign Github Repository [|]
